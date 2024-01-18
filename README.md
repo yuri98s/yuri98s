@@ -7,8 +7,10 @@ Tenho cursos profissionalizantes nas áreas de Administração, Recursos Humanos
 Não só no meio profissional, mas também na vida pessoal e social, possuo boa comunicação que desencadeia uma parceria em equipe vantajosa. Além disso, a criatividade é uma das minhas qualidades, que me ajuda a encontrar novos caminhos para alcançar o objetivo.
 
 💻Soft Skills
-- Hands-On
+- Dinamismo
+  
 - Adaptabilidade
+  
 - Comunicação
 
 🚀Hard Skill
